@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @4wdgif
 - 👀 I’m interested in 4wd adventures 
 - 🌱 I’m currently learning, new terrains and areas
-- 💞️ I’m looking to collaborate on
+- 💞️ I’m looking to collaborate on 4wd 4x4 stuff
 - 📫 How to reach me.. 4wdlife92@gmail.com
 
 <!---
